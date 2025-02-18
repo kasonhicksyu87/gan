@@ -8,3 +8,4 @@ zhe du neng peng dao
 pao xiang
 zale 
 jiayou
+abs
