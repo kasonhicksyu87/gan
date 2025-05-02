@@ -11,5 +11,5 @@ jiayou
 abs
 oooppp zhou mo qu kuang guang
 ni yao zheng ming
-nan wa deng wo 
+nan wa deng wo shuai yi jiao ban wo 
 wo you qian  qiu zhong wo yi zhi za ideng 
